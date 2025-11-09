@@ -1,2 +1,0 @@
-# INTOlerANTEALaLINETOSA-page
-pues nose
